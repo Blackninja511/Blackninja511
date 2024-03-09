@@ -1,1 +1,1 @@
-Dont think it work. gonna come back later if i dont find a solution
+By [Blackninja511](https://github.com/Blackninja511)
