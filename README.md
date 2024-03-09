@@ -1,1 +1,1 @@
-By [Blackninja511](https://github.com/Blackninja511)
+Made by [Blackninja511](https://github.com/Blackninja511)
